@@ -8,4 +8,10 @@ maybe ill talk to you again after the summer, i just want to be alone, not updat
 
 i dont know what to do, i want to tell you so much stuff but i dont know what you're doing .. why are you pursuing me if you're not single, i dont get that
 
+im done with my required work for the week, working on pipeline/ml project today and tomorrow, we're analyzing clinical bulk rna-seq data and my team is working on the immune signatures aspect of that ... would be a great paper
+
+i feel like talking to you today ... it feels right but i hate that you cant respond so like ...
+
+this is the dress i got for my brother's commencement next week https://www.aliceandolivia.com/cora-shirt-dress/CC504P02523G178.html its like spring time ... im OOO next wednesday-friday, gonna be in maryland/DC
+
 -->
