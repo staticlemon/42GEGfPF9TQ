@@ -18,4 +18,6 @@ after my mskcc coworker talked about the lawsuits going on at penn ... i was lik
 
 in my working group for immune signatures, there was someone who USE to be at WCM, now they're at mskcc, and i wanted to ask if they knew you, but i was like, you dont respond to emails so i dont care what you're doing, i dunno, i think they prolly know you ... so we were 1 degree separated by this person ... lol
 
+alright i got slack messaged, have some work to do now ... i love mskcc so far, its all the good stuff i liked from previous jobs, the culture is great, people are super nice and super smart
+
 -->
