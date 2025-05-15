@@ -14,4 +14,8 @@ i feel like talking to you today ... it feels right but i hate that you cant res
 
 this is the dress i got for my brother's commencement next week https://www.aliceandolivia.com/cora-shirt-dress/CC504P02523G178.html its like spring time ... im OOO next wednesday-friday, gonna be in maryland/DC
 
+after my mskcc coworker talked about the lawsuits going on at penn ... i was like ... ohh is this all really real then? is that why you cant talk to me
+
+in my working group for immune signatures, there was someone who USE to be at WCM, now they're at mskcc, and i wanted to ask if they knew you, but i was like, you dont respond to emails so i dont care what you're doing, i dunno, i think they prolly know you ... so we were 1 degree separated by this person ... lol
+
 -->
