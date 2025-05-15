@@ -26,4 +26,7 @@ that person who use to be at WCM and is now at mskcc was saying that mskcc and t
 
 there was some cancer AI company that presented their AI tool during this once a month? meeting where all the computational biologists in every lab/team is in attendence and theres an interesting presentation ... anyway, a few days after their presentation, we got an email ... including me!! lol i got an email, that their terms of agreement to use the cancer AI tool violates some mskcc IP rule so we cant use it lol  
 
+im glad i got laid off from my previous position otherwise i would have never looked for another ... more challenging ... job, things are def better now, im around a better team, its not industry but its more interesting research ... ive wanted to work in nyc since 2014 ... so many interviews and years later, finally am doing it
+
+
 -->
