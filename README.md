@@ -22,4 +22,6 @@ alright i got slack messaged, have some work to do now ... i love mskcc so far, 
 
 you know, they said i scored a 9/10 on the programming assignment for this position at mskcc, and usually people score a 5/10, and i was their most well liked candidate ... so they introduce me as a great programmer to new teams, which is true, i didnt waste my time during downtimes, i always tried to grow and learn new things. both python and R are big here, maybe there will be an opportunity to use some Rust i dunno
 
+that person who use to be at WCM and is now at mskcc was saying that mskcc and the labs have a rigorous interview process bc they want to make sure the person they hire isnt "problematic", i feel like the culture here is very good ... yeah problematic people in academia are just bad for so many reasons, they cause a lot of damage
+
 -->
