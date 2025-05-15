@@ -24,4 +24,6 @@ you know, they said i scored a 9/10 on the programming assignment for this posit
 
 that person who use to be at WCM and is now at mskcc was saying that mskcc and the labs have a rigorous interview process bc they want to make sure the person they hire isnt "problematic", i feel like the culture here is very good ... yeah problematic people in academia are just bad for so many reasons, they cause a lot of damage
 
+there was some cancer AI company that presented their AI tool during this once a month? meeting where all the computational biologists in every lab/team is in attendence and theres an interesting presentation ... anyway, a few days after their presentation, we got an email ... including me!! lol i got an email, that their terms of agreement to use the cancer AI tool violates some mskcc IP rule so we cant use it lol  
+
 -->
