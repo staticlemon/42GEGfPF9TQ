@@ -20,4 +20,6 @@ in my working group for immune signatures, there was someone who USE to be at WC
 
 alright i got slack messaged, have some work to do now ... i love mskcc so far, its all the good stuff i liked from previous jobs, the culture is great, people are super nice and super smart
 
+you know, they said i scored a 9/10 on the programming assignment for this position at mskcc, and usually people score a 5/10, and i was their most well liked candidate ... so they introduce me as a great programmer to new teams, which is true, i didnt waste my time during downtimes, i always tried to grow and learn new things. both python and R are big here, maybe there will be an opportunity to use some Rust i dunno
+
 -->
