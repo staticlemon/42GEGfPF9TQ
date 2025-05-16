@@ -29,4 +29,6 @@ there was some cancer AI company that presented their AI tool during this once a
 im glad i got laid off from my previous position otherwise i would have never looked for another ... more challenging ... job, things are def better now, im around a better team, its not industry but its more interesting research ... ive wanted to work in nyc since 2014 ... so many interviews and years later, finally am doing it
 
 welp, the suns not coming out today, another cloudy day >:|
+
+our dept has a poster reception and networking hour next thurs but ill be in md, would have gone otherwise, hopefully ill have something poster wise to present for the next one
 -->
