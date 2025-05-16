@@ -33,4 +33,6 @@ welp, the suns not coming out today, another cloudy day >:|
 our dept has a poster reception and networking hour next thurs but ill be in md, would have gone otherwise, hopefully ill have something poster wise to present for the next one
 
 in order to put m s k c c slack and outlook on our iphones, we need to install some cisco thing, that takes control of the iphone and installs apps but it says it doesnt have access to imessage and photos .. so id say half of my coworkers didnt install it, but i did, i was like w/e i dont have anything crazy on my iphone so what?? and i need to have email on my iphone, but some people, higher level than me wont do it and didnt do it
+
+my former coworker at my previous job, who was a SE, also got laid off, super nice, he had a BMW lol (i just like seeing what people spend their money on lol), anyway, he said once ~"whenever you have free time at work, just learn something new, even if its a new git command" and then he also said in a meeting once, apparently, this is true i dunno, that "the best time to write code is 5am to 9am" i dunno apparently that when your brain is the most awake? something like that, and its sooo true, no distractions, pure concentration, so in my previous job i use to write code from 6am - 9am, and i would always finish it
 -->
