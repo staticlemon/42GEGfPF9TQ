@@ -31,4 +31,6 @@ im glad i got laid off from my previous position otherwise i would have never lo
 welp, the suns not coming out today, another cloudy day >:|
 
 our dept has a poster reception and networking hour next thurs but ill be in md, would have gone otherwise, hopefully ill have something poster wise to present for the next one
+
+in order to put m s k c c slack and outlook on our iphones, we need to install some cisco thing, that takes control of the iphone and installs apps but it says it doesnt have access to imessage and photos .. so id say half of my coworkers didnt install it, but i did, i was like w/e i dont have anything crazy on my iphone so what?? and i need to have email on my iphone, but some people, higher level than me wont do it and didnt do it
 -->
