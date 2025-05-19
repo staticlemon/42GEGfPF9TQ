@@ -40,4 +40,6 @@ i want this leopard print shirt but its sold out in small/medium https://www.ali
 
 starting work early bc theres a custom-ish pipeline i wanted to start that will take several hours to run, so hopefully it'll finish before the end of the day so i can see the results, then we have our big monday meeting where everyone talks ... including meeeee ... in the late afternoon, mondays are so busy, then i have to finish packing for maryland after work bc we're leaving after work tomorrow, i got new valentino shoes that i think i cant wear to the graduation ceremony bc its going to be cold and raining so that's annoying, maybe my chloe boots, so much to do today, ohh and my brother's thesis advisor fell in portugal and broke his hip so he wont be at graduation, ummm why is it so cold this morning
 
+i was cold all day today and its cold this whole week, i got pulled in to an hr long meeting and i needed that hour to do something else, now im assigned to do something thats due in mid june and im going to spend my PTO thinking about it prolly lol
+
 -->
