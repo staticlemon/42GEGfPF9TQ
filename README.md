@@ -42,4 +42,6 @@ starting work early bc theres a custom-ish pipeline i wanted to start that will 
 
 i was cold all day today and its cold this whole week, i got pulled in to an hr long meeting and i needed that hour to do something else, now im assigned to do something thats due in mid june and im going to spend my PTO thinking about it prolly lol
 
+on a new nextflow project which is still a little new to meeee
+
 -->
