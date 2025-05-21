@@ -48,4 +48,6 @@ i had my weekly 1:1 with my manager, a senior comp biologist, and we were having
 
 got like overpriced coconut water at a rest stop for $5?? i actually wanted orange juice but they didnt have any
 
+i planned a month ago that id spend this memorial day weekend testing out cursor ai, working on a personal project, some osx app, but i really think my free time should be better spent on cancer genomics, i dunno, i like knowing things at work, so i **should** use this weekend to study
+
 -->
