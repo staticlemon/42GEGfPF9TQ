@@ -60,4 +60,6 @@ getting ready -> thinking about work, doing anything today or while on PTO, by d
 
 my brothers phd gown is bright red lol, its cold and rainyyy
 
+going to a persian restaurant in virginia to celebrate but the traffic is terrible; when they were reading out loud the thesis titles of like all of the phd recipients, lots of emphasis on ml/ai/deep learning, interesting
+
 -->
