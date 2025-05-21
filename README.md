@@ -52,4 +52,9 @@ i planned a month ago that id spend this memorial day weekend testing out cursor
 
 i wanna shop ... window shop ... but really shop at tysons galleria like the old days when i use to live in maryland but i dont think we'll get time ... sleep timeeee
 
+https://www.tiktok.com/t/ZP86cWx6Q/
+
+https://www.tiktok.com/t/ZP8631T28/ yeah this is def urdu/pakistani not bollywood but whats the original hmmm
+
+
 -->
