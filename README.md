@@ -46,4 +46,6 @@ on a new nextflow project which is still a little new to meeee
 
 i had my weekly 1:1 with my manager, a senior comp biologist, and we were having fun talking about projects, nextflow, and how i got everyone into strawberry matchas ... and i was telling my dad, like i dont think ive ever had a manager that didnt hate me ... like i dont know how to even respond sometimes, im like what ... what do you mean everything is ok
 
+got like overpriced coconut water at a rest stop for $5?? i actually wanted orange juice but they didnt have any
+
 -->
