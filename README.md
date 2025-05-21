@@ -56,5 +56,6 @@ https://www.tiktok.com/t/ZP86cWx6Q/
 
 https://www.tiktok.com/t/ZP8631T28/ yeah this is def urdu/pakistani not bollywood but whats the original hmmm
 
+getting ready -> thinking about work, doing anything today or while on PTO, by default, thinking about work ... cant enjoy the present 🥹🥹🥹 took me 2 hrs to get readyyyy lol
 
 -->
