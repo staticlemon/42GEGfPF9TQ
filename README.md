@@ -64,4 +64,6 @@ going to a persian restaurant in virginia to celebrate but the traffic is terrib
 
 ill post a picture tomorroww
 
+unpacking, study day tomorrow and jummah with my dad
+
 -->
