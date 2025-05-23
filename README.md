@@ -66,4 +66,6 @@ ill post a picture tomorroww
 
 unpacking, study day tomorrow and jummah with my dad
 
+https://www.tiktok.com/@speedymorman/video/7506576458932899102 ohh interesting
+
 -->
