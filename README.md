@@ -68,4 +68,8 @@ unpacking, study day tomorrow and jummah with my dad
 
 https://www.tiktok.com/@speedymorman/video/7506576458932899102 ohh interesting
 
+going out to dinner with my parents somewhere in nyc, i dunno what we decied on
+
+u know ... i need to find a good book or two on like high achieving ... things to do at work, i ask chatgpt for things like that, like what do i need to do to be a senior computational biologist things like that, i wonder if there are good books
+
 -->
